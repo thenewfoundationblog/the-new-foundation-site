@@ -1,4 +1,82 @@
-<header>
+<header># From Creation to New Creation: How Jesus Restores All Things  
+
+## **The State of Nothingness**  
+In the beginning, there was **nothing**—no life, no light, and no hope.  
+Like a crumpled paper, **the world was worthless and useless**.  
+But before the beginning, there was **God**, and **the Spirit of God** hovered above the face of the waters.  
+
+---
+
+## **The Power of Creation**  
+> **Genesis 1:1** – "In the beginning God created The Heavens and the earth."  
+
+The **Heavens**, the dwelling place of the Most High God, was hidden in secrecy.  
+It remained **unknown to men** until **Jesus**, the One who was with the Father from the beginning, came to live among us.  
+
+> **Genesis 1:2** – "The earth was without form and void, and darkness was over the face of the deep, and The Spirit of God was hovering over the face of the waters."  
+
+Then, **God spoke**:  
+
+> **Genesis 1:3** – "And God said, Let there be light, and there was light."  
+
+God saw that the light was **good** and separated it from darkness, creating **day and night**.  
+In a similar manner, He **called everything into existence** by the **Word from His mouth**, making a **perfect world** out of **nothingness, uselessness, and worthlessness**.  
+
+And so, it is safe to say:  
+
+> **The world was absolutely chaotic until it came into contact with the Word of God, which is Jesus.**  
+
+---
+
+## **Jesus: The Word That Created All Things**  
+> **John 1:1-5 (NIV)**  
+> "In the beginning was the Word, and the Word was with God, and the Word was God. All things were made through Him, and without Him nothing was made. In Him was Life, and the Life was the Light of Men. The Light shines in the darkness, and the darkness has not overcome it."  
+
+Everything exists **because of the spoken Word of God**—which means **Jesus is the reason and Owner of all existence**.  
+
+---
+
+## **Whose Beginning Is Genesis Talking About?**  
+The **Bible is a spiritual representation of our physical world**.  
+So, the **"beginning"** in Genesis refers to the **beginning of the life of Men**.  
+
+- Life without **Jesus** is chaotic, without form, and full of darkness.  
+- But when it comes into contact with **the Word (Jesus)**, everything changes.  
+- The Word **lives in our hearts**, transforming us into **a glorious and perfect land** fit for a **better life**.  
+- He brings **hope into nothingness**, **light into darkness**, and **life in place of death**.  
+
+---
+
+## **A Question for You**  
+> **Do you believe Christ Jesus is the Foundation that holds all Existence?**  
+
+📌 **Share with us in the comments** about a testimony or an encounter that made you believe so.  
+
+---
+
+## **Prayer Requests & Salvation Prayer**  
+🙏 **Need a prayer?** Leave a request in the comments, and we will be glad to pray with you.  
+
+If you are ready to have a **deeper companionship with the Word, Jesus Christ**, kindly say this prayer:  
+
+### **Prayer of Salvation**  
+> **Dear Jesus Christ, the Son of The Living God,**  
+> I thank You for today.  
+> Your Word has made me understand that You are the **sole reason I exist**.  
+> I believe that You are the **Son of God**, and You came to die for my sins on the cross.  
+> On the third day, You **rose again** to bring me **redemption**.  
+> I accept You today into my life as my **Lord and personal Savior**.  
+> I commit to worship and serve You all the days of my life.  
+> Lord, I ask for Your grace.  
+>  
+> Thank You, Lord, for the **peace and fruitfulness** You have brought into my life.  
+>  
+> In Your mighty name, I have prayed, **AMEN!**  
+
+---
+
+📌 **If you prayed this prayer, let us know in the comments!**  
+📌 **Follow us for more teachings and encouragement.**
 
 <!--
   <<< Author notes: Course header >>>
